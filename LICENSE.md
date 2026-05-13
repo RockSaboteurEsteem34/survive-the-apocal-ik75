@@ -1,4 +1,4 @@
-#  
+#  stealth Scripts for brookhaven rp is the best brookhaven rp Script, featuring auto-sell and infinite resources. Safe and powerful for all your needs.
 
 
 
